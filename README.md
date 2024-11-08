@@ -10,11 +10,17 @@ i go by many names, mostly known as lennox or kaizen ! , **you can nickname me a
 
 my pronouns are **he/they** !, *i dont mind and dont care if you use anything else when you didnt know.*
 
+*keep in mind* im **14** . 18+ iwec.
+
+
+
 my favourite characters are (bold ones are TOP FAVS heh.):
 
 **Sakura** (windbreaker)
 
 **Kaworu** (evangelion)
+
+**Rinnie** (enstars)
 
 nine (bfdi)
 
@@ -28,7 +34,6 @@ nagi (bluelock)
 
 and more!
 
-*keep in mind* im **14** . 18+ iwec.
 
 c+h always allowed, even if dni, just may not say anything, i love c+h !
 
