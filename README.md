@@ -22,6 +22,8 @@ my favourite characters are (bold ones are TOP FAVS heh.):
 
 **Rinnie** (enstars)
 
+**X** (reverse 1999)
+
 nine (bfdi)
 
 **levi**, jean, eren. (aot)
