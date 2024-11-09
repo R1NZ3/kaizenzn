@@ -2,7 +2,7 @@
 
 ---
 
-Kaizen , or lennox !
+guys i will make a grahpic soon truets and start being a urls + rentries owner agaian
 
 --- 
 
