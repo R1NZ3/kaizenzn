@@ -6,7 +6,7 @@ guys i will make a grahpic soon truets and start being a urls + rentries owner a
 
 --- 
 
-i go by many names, mostly known as lennox or kaizen ! , **you can nickname me anything i love nicknames, *i adore 'em !<3***
+i go by many names, ***preferably*** **kaizen - lennox - or renze**.  , **you can nickname me anything i love nicknames, *i adore 'em !<3***
 
 my pronouns are **he/they** !, *i dont mind and dont care if you use anything else when you didnt know.*
 
