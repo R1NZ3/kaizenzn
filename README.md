@@ -20,7 +20,7 @@ my favourite characters are (bold ones are TOP FAVS heh.):
 
 **Kaworu** (evangelion)
 
-**Rinnie** (enstars)
+**Rinne** (enstars)
 
 **X** (reverse 1999)
 
